@@ -1,4 +1,4 @@
-Elias // Rhayne
+Elijah / Elias
 
 Spam follow account / Follow back account— block if unwanted/uncomf
 
